@@ -1,6 +1,6 @@
 VIDEO LINK:- https://drive.google.com/file/d/1P-uElpqGK1I-m92wl-dCK42BfGXjA6PH/view?usp=sharing
 
-PPT LINK:- https://drive.google.com/file/d/1l40s6pDRlXcGjh3TMymNECsAMi963mqG/view?usp=sharing
+PPT LINK:- https://drive.google.com/file/d/1PPvHSMNO4iXC4mYicZBAJWzAh74UwpKH/view?usp=sharing
 
 DEPLOYED LINK:-
 
